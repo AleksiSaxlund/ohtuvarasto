@@ -1,2 +1,0 @@
-muutos-p asdasdasd
-asd
